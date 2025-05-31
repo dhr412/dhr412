@@ -1,4 +1,4 @@
-![Hie](https://tenor.com/voZ3SYsc2gX.gif)
+![Hie](https://media1.tenor.com/m/92MplgQwb80AAAAC/cat-meme-wave-emoji.gif)
 
 
 <!-- # Tech Stack:
